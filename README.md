@@ -1,1 +1,11 @@
 # deepwebsites
+
+http://ddosxlvzzow7scc7egy75gpke54hgbg2frahxzaw6qq5osnzm7wistid.onion/wiki/Hacking_Team
+
+http://blkhatjxlrvc5aevqzz5t6kxldayog6jlx5h7glnu44euzongl4fh5ad.onion/index.php?lang=de
+
+http://mintu99.anonblogd4pcarck2ff6qlseyawjljaatp6wjq6rqpet2wfuoom42kyd.onion/p/300-termux-hacking-tools
+
+http://wmvrpbarmnghd5oloyzxfnl6nt537hj2bhcjwt3cxvs25vuy42yxj2id.onion
+
+g7ejphhubv5idbbu3hb3wawrs5adw7tkx7yjabnf65xtzztgg4hcsqqd.onion
